@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @kajkoberge
-- 👀 I’m interested in drugs
+- 👀 I’m interested in hmm being #1 on faceit
 - 🌱 I’m currently learning C++
-- 💞️ I’m looking to collaborate on some awesome Party 3:)
+- 💞️ heh :)
 - 📫 How to reach me Idk maybe discord
 
 <!---
